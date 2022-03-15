@@ -16,8 +16,6 @@
 ##What?
 BLOCKBLOCK
 
-STOP Dani@dictatorr
-
 *OHMEINGOOTTT*
 
 *hiillooo*
