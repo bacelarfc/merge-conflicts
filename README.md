@@ -9,8 +9,15 @@
 # merge-conflicts
 
 **IM MUBBI LUBBI**
+
+
 >>>>>>>>> Temporary merge branch 2
 
+##What?
 BLOCKBLOCK
 
 STOP Dani@dictator
+
+*OHMEINGOOTTT*
+
+*hiillooo*
